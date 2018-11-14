@@ -15,3 +15,7 @@ Crossing miles of frustrations and rivers a raging，pick up stones I found alon
 May you live the way you like.
 	愿你能过上自己喜欢的生活.
 ~~~
+~~~
+Whatever you do, you should do what you most want to do, what you're best at.
+	无论你做什么,都应该多你最想做的、最会做的. ---2018.11.14
+~~~
