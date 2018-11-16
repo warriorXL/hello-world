@@ -19,3 +19,7 @@ May you live the way you like.
 Whatever you do, you should do what you most want to do, what you're best at.
 	无论你做什么,都应该多你最想做的、最会做的. ---2018.11.14
 ~~~
+~~~
+As is a tale, so is life: not how long it is, but how good it is, is what matters.
+	生活就像故事一样:不在乎长短,而在于质量,这才是最重要的.---2018.11.16
+~~~
