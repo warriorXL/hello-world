@@ -23,3 +23,7 @@ Whatever you do, you should do what you most want to do, what you're best at.
 As is a tale, so is life: not how long it is, but how good it is, is what matters.
 	生活就像故事一样:不在乎长短,而在于质量,这才是最重要的.---2018.11.16
 ~~~
+~~~
+When the Lord closes a door, somewhere he opens a window.
+	当上帝关上一扇门,他会在别处开一扇窗.---2018.11.20
+~~~
