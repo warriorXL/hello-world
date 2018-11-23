@@ -27,3 +27,7 @@ As is a tale, so is life: not how long it is, but how good it is, is what matter
 When the Lord closes a door, somewhere he opens a window.
 	当上帝关上一扇门,他会在别处开一扇窗.---2018.11.20
 ~~~
+~~~
+Life will always knock us down, but we can choose whether to stand back up, then keep fighting.
+	生活会把我们打趴下,但我们可以选择重新站起来,继续奋斗.---2018.11.23
+~~~
