@@ -31,3 +31,7 @@ When the Lord closes a door, somewhere he opens a window.
 Life will always knock us down, but we can choose whether to stand back up, then keep fighting.
 	生活会把我们打趴下,但我们可以选择重新站起来,继续奋斗.---2018.11.23
 ~~~
+~~~
+You cannot live your life to please others, the choice must be yours.
+	你不能为了取悦他人而活着,人生必须自己做决定.---2018.11.27
+~~~
