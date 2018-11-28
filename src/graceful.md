@@ -35,3 +35,7 @@ Life will always knock us down, but we can choose whether to stand back up, then
 You cannot live your life to please others, the choice must be yours.
 	你不能为了取悦他人而活着,人生必须自己做决定.---2018.11.27
 ~~~
+~~~
+Remember, you're the one who can fill the world with sunshine.
+	记住,你是能让世界洒满阳光的人.---2018.11.28
+~~~
