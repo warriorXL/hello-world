@@ -9,11 +9,11 @@ The flower that blooms in adversity is the most rare and beautiful of all.
 ~~~
 ~~~
 Crossing miles of frustrations and rivers a raging，pick up stones I found along the way.
-	穿过满路荆棘挫折，越过无数狂怒激流，我也不忘一路寻找圆润美丽的卵石.---2018.11.07
+	穿过满路荆棘挫折，越过无数狂怒激流，我也不忘一路寻找圆润美丽的卵石.---2018.11.08
 ~~~
 ~~~
 May you live the way you like.
-	愿你能过上自己喜欢的生活.
+	愿你能过上自己喜欢的生活.---2018.11.09
 ~~~
 ~~~
 Whatever you do, you should do what you most want to do, what you're best at.
