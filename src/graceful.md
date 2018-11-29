@@ -39,3 +39,7 @@ You cannot live your life to please others, the choice must be yours.
 Remember, you're the one who can fill the world with sunshine.
 	记住,你是能让世界洒满阳光的人.---2018.11.28
 ~~~
+~~~
+The things you own end up owning you.
+	你占有的东西终将会占有你.---2018.11.29
+~~~
