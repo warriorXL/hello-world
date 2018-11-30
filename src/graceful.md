@@ -43,3 +43,7 @@ Remember, you're the one who can fill the world with sunshine.
 The things you own end up owning you.
 	你占有的东西终将会占有你.---2018.11.29
 ~~~
+~~~
+Don't lose hope, you never know what tomorrow will bring.
+	别灰心,谁知道明天会有怎样的惊喜.---2018.11.30
+~~~
