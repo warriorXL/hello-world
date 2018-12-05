@@ -47,3 +47,7 @@ The things you own end up owning you.
 Don't lose hope, you never know what tomorrow will bring.
 	别灰心,谁知道明天会有怎样的惊喜.---2018.11.30
 ~~~
+~~~
+Never hate your enemies, it affects your judgement.
+	永远不要恨你的敌人,这回影响你的判断.---2018.12.05
+~~~
