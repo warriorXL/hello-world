@@ -51,3 +51,7 @@ Don't lose hope, you never know what tomorrow will bring.
 Never hate your enemies, it affects your judgement.
 	永远不要恨你的敌人,这回影响你的判断.---2018.12.05
 ~~~
+~~~
+You only get one life, it's actually your duty to live it as fully as possible.
+	声明只有一次,你有责任让它活出精彩.---2018.12.06
+~~~
