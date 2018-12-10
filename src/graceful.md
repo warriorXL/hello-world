@@ -55,3 +55,7 @@ Never hate your enemies, it affects your judgement.
 You only get one life, it's actually your duty to live it as fully as possible.
 	声明只有一次,你有责任让它活出精彩.---2018.12.06
 ~~~
+~~~
+Some birds aren't meant to be caged, their feathers are just too bright.
+	有的鸟是关不住的,因为他们的羽毛太美丽了.---2018.12.10
+~~~
