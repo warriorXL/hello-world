@@ -59,3 +59,7 @@ You only get one life, it's actually your duty to live it as fully as possible.
 Some birds aren't meant to be caged, their feathers are just too bright.
 	有的鸟是关不住的,因为他们的羽毛太美丽了.---2018.12.10
 ~~~
+~~~
+Don't be afraid, we'll make it out of this mess.
+	不要害怕,我相信我们终会冲破困境.---2018.12.18
+~~~
