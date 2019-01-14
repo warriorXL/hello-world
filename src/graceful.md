@@ -63,3 +63,7 @@ Some birds aren't meant to be caged, their feathers are just too bright.
 Don't be afraid, we'll make it out of this mess.
 	不要害怕,我相信我们终会冲破困境.---2018.12.18
 ~~~
+~~~
+You'll remember you don't believe in any of this fate crap. You're in control of your own life.
+	记住, 别相信天注定那套说辞; 你的人生要由自己掌握.---2019.01.14
+~~~
