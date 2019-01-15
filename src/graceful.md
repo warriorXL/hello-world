@@ -67,3 +67,7 @@ Don't be afraid, we'll make it out of this mess.
 You'll remember you don't believe in any of this fate crap. You're in control of your own life.
 	记住, 别相信天注定那套说辞; 你的人生要由自己掌握.---2019.01.14
 ~~~
+~~~
+Birds don't just fly, they fall down and get up. Nobady learns without getting it wrong.
+	曾经坠落,才能学会飞翔; 走过错路,才能找到正途.---2019.01.15
+~~~
