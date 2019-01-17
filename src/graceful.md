@@ -71,3 +71,7 @@ You'll remember you don't believe in any of this fate crap. You're in control of
 Birds don't just fly, they fall down and get up. Nobady learns without getting it wrong.
 	曾经坠落,才能学会飞翔; 走过错路,才能找到正途.---2019.01.15
 ~~~
+~~~
+It's always chilly at sunrise.
+	黎明前总有些寒冷.---2019.01.17
+~~~
