@@ -75,3 +75,7 @@ Birds don't just fly, they fall down and get up. Nobady learns without getting i
 It's always chilly at sunrise.
 	黎明前总有些寒冷.---2019.01.17
 ~~~
+~~~
+If you do what is easy, your life will be hard; but if you do what is hard, your life will be easy.
+	遇难而退,兜兜转转方见万壑千岩; 迎难而上, 淬炼重生方见万丈光芒.---2019.01.18
+~~~
