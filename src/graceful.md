@@ -79,3 +79,7 @@ It's always chilly at sunrise.
 If you do what is easy, your life will be hard; but if you do what is hard, your life will be easy.
 	遇难而退,兜兜转转方见万壑千岩; 迎难而上, 淬炼重生方见万丈光芒.---2019.01.18
 ~~~
+~~~
+No right，no rong，no rules for me，I'm free！Let it go。Let it go。
+	不再被规则所束缚，世界由我！随心而行！---2018.01.24
+~~~
