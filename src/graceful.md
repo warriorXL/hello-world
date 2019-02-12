@@ -81,5 +81,9 @@ If you do what is easy, your life will be hard; but if you do what is hard, your
 ~~~
 ~~~
 No right，no rong，no rules for me，I'm free！Let it go。Let it go。
-	不再被规则所束缚，世界由我！随心而行！---2018.01.24
+	不再被规则所束缚，世界由我！随心而行！---2019.01.24
+~~~
+~~~
+There is much opportunity for anyone willing to dedicate himself to his labors.
+	付出努力的人才有机会出人头地.---2019.02.12
 ~~~
