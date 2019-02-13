@@ -87,3 +87,7 @@ No right，no rong，no rules for me，I'm free！Let it go。Let it go。
 There is much opportunity for anyone willing to dedicate himself to his labors.
 	付出努力的人才有机会出人头地.---2019.02.12
 ~~~
+~~~
+Seven Deadly Sins： Gulttony，Greed，Solth，Wrath，Pride，Lust，and Envy。
+	七宗罪： 暴食，贪婪，懒惰，暴怒，傲慢，色欲，妒忌。---2019.02.13
+~~~
