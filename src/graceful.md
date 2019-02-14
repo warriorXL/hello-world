@@ -91,3 +91,7 @@ There is much opportunity for anyone willing to dedicate himself to his labors.
 Seven Deadly Sins： Gulttony，Greed，Solth，Wrath，Pride，Lust，and Envy。
 	七宗罪： 暴食，贪婪，懒惰，暴怒，傲慢，色欲，妒忌。---2019.02.13
 ~~~
+~~~
+To the world you may be one person, but to one person you may be the world.
+	对于世界而言，你是一个人，但对于某人而言，你是他的整个世界。---2019.02.14
+~~~
