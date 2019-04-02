@@ -95,3 +95,7 @@ Seven Deadly Sins： Gulttony，Greed，Solth，Wrath，Pride，Lust，and Envy�
 To the world you may be one person, but to one person you may be the world.
 	对于世界而言，你是一个人，但对于某人而言，你是他的整个世界。---2019.02.14
 ~~~
+~~~
+Dreams save us. Dreams lift us up and transform us into something better.
+	梦想能拯救我们。梦想能激励我们并让我们成为更好的人。---2019.04.02
+~~~
